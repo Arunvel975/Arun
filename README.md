@@ -1,2 +1,0 @@
-# Arun
-vaanga kathukalam
